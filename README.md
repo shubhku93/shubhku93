@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **kshubh037@gmail.com**
 
-- ⚡ Fun fact **I am interested web Development and I think 🤔 I am enjoying it 😍**
+- ⚡ Fun fact **I am interested in web Development and I think 🤔 I am enjoying it 😍**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
